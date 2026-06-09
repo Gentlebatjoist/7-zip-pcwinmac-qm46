@@ -1,4 +1,4 @@
-# 
+# Profissional 7-Zip ferramentas para Mac OS | Oficial 7-Zip ferramentas para PC Windows. Com visualizacao de dados e otimizacao de resfriamento — otimizado para máximo desempenho em cada plataforma.
 
 
 
